@@ -9,6 +9,8 @@
 > Contate nos no discord!
 - [X] CEO: @JohnnySteinHyper Discord: Dev | Johnny#6046
 - [X] COO: @procarrera Discord: procarrera#7634
+
 **Nosso servidor: https://discord.gg/cU8jBjd**
+
 ![Discord](https://img.shields.io/discord/767120461443498014?style=flat-square)
 
